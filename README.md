@@ -10,7 +10,8 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with improving backend architecture and best practices
 - 💬 Ask me about anything
 - 📫 How to reach me on  📞 6378984761, 📧 prakashgupta272001@gmail.com, 💼 inkedin.com/in/pr-gupta/
-- ⚡ Fun fact: I enjoy turning masala chaiii ☕ into clean, responsive U
+- ⚡ Fun fact: I enjoy turning masala chaiii ☕ into clean, responsive UI
+- ⚡ Fun fact one more : my name is Japanese 🇯🇵 Prah-kah-shoo · Goo-poo-tah 😂
 
 
 ## 🌐 Socials:
